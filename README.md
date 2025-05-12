@@ -30,9 +30,6 @@ I'm open to collaborating on:
 ## 😄 Pronouns
 He/Him
 
-## ⚡ Fun Fact
-I love combining creativity with logic whether it’s designing secure systems or crafting efficient code.
-
 ---
 
 Thanks for visiting my profile! 😊
